@@ -1,4 +1,4 @@
-### Hi there 👋. I'
+### Hi there 👋. I'm
 
 - 🔭 currently seeking spring 2024 internships
 - 🌱 a second-year mathematics undergraduate @uwaterloo studying statistics
